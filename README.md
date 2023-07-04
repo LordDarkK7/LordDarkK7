@@ -1,7 +1,7 @@
 ### Hi there, This is not the page you are looking for!
 ![image](https://github.com/LordDarkK7/LordDarkK7/assets/138528443/63c40acf-a03b-453e-a962-ad3c3f18cb53)
 
-Transformation and system team leader.
+System Team lead and Transformation leader.
 
 
 
